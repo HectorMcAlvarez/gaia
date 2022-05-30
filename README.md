@@ -1,4 +1,5 @@
 
+
 [29/07/21 16:12:40] **Pau Fitz:** Pediatra 11 am
 
 [29/07/21 16:15:45] **Alfonso Alvarez:** Cuando?
@@ -1360,3 +1361,662 @@ info@caligramaeditorial.com
 [17/12/21 16:16:09] **Alfonso Alvarez:** Con cuidado 👴🏽
 
 ‎[17/12/21 16:18:53] **Pau Fitz:** ‎<attached: 00000809-AUDIO-2021-12-17-16-18-53.opus>
+
+[17/12/21 16:20:51] **Alfonso Alvarez:** Estoy tratando de poner a cargar esta cosa
+
+[17/12/21 16:21:39] **Pau Fitz:** Aaa decía que si vamos con cuidado pero que si tienes chance de mandarme una foto de la tarjeta de circulación porque me entro duda si tenemos que pagar multa o no
+
+[17/12/21 16:21:55] **Alfonso Alvarez:** Rt
+
+[17/12/21 16:22:05] **Pau Fitz:** Yo lo checo u si si te aviso para que lo pagues en el banco y no tengas que dar vueltas
+
+[17/12/21 16:23:41] **Pau Fitz:** 😘
+
+‎[17/12/21 17:09:14] **Alfonso Alvarez:** ‎<attached: 00000815-PHOTO-2021-12-17-17-09-14.jpg>
+
+[17/12/21 17:13:13] **Pau Fitz:** Ok ahorita te aviso ya estamos en la casa
+
+[17/12/21 17:13:44] **Alfonso Alvarez:** Q Bueno amor
+
+[17/12/21 17:13:54] **Pau Fitz:** 😘
+
+‎[17/12/21 17:13:57] **Alfonso Alvarez:** ‎<attached: 00000819-PHOTO-2021-12-17-17-13-56.jpg>
+
+[17/12/21 17:15:08] **Pau Fitz:** Y eso? Aaa es lo de americano mo ?
+
+[17/12/21 17:17:33] **Alfonso Alvarez:** Siiii. 🥸
+
+[17/12/21 17:19:52] **Pau Fitz:** Te las vas a traer ?
+
+[17/12/21 17:20:38] **Pau Fitz:** Pues según qué no hay multa 🤷🏽‍♀️
+
+[17/12/21 17:20:55] **Pau Fitz:** Pero es que ya no se me hago bolas cómo son placas nuevas
+
+[17/12/21 17:21:28] **Pau Fitz:** El certificado de la verificación anterio también llévalo
+
+[17/12/21 17:21:31] **Alfonso Alvarez:** Pues si no mañana veo
+
+[17/12/21 17:21:49] **Alfonso Alvarez:** Al fin q aquí son bien corruptos y con un docienton quedan contentos
+
+[17/12/21 17:21:54] **Alfonso Alvarez:** 😅
+
+[17/12/21 17:21:59] **Alfonso Alvarez:** 🥸
+
+[17/12/21 17:21:59] **Pau Fitz:** Cualquier cosa hay citas para ese mismo día disponible les pero más tarde
+
+[17/12/21 17:22:03] **Pau Fitz:** Jajajaj eso si
+
+‎[17/12/21 18:05:00] **Alfonso Alvarez:** ‎<attached: 00000832-PHOTO-2021-12-17-18-05-00.jpg>
+
+[17/12/21 18:07:51] **Pau Fitz:** Ay que bonito ! Me encanta ese jardín
+
+‎[17/12/21 18:08:10] **Pau Fitz:** ‎<attached: 00000834-PHOTO-2021-12-17-18-08-10.jpg>
+
+[17/12/21 18:28:15] **Alfonso Alvarez:** 🥰
+
+[17/12/21 18:28:29] **Alfonso Alvarez:** Esta padrisimo ese tapete
+
+[17/12/21 18:28:59] **Alfonso Alvarez:** Y creo q la textura le gusta mucho
+
+[17/12/21 18:29:06] **Alfonso Alvarez:** Me avisas cuando estes libre
+
+[17/12/21 18:41:18] **Pau Fitz:** Si amor la estoy durmiendo
+
+[17/12/21 18:41:33] **Pau Fitz:** Te aviso ahorita
+
+[17/12/21 19:00:01] **Pau Fitz:** Hola amor ya la
+Dormí
+
+[17/12/21 19:00:42] **Alfonso Alvarez:** Me marcas ☺️
+
+[17/12/21 19:00:52] **Pau Fitz:** Sip
+
+‎[17/12/21 19:50:38] **Alfonso Alvarez:** ‎<attached: 00000844-PHOTO-2021-12-17-19-50-38.jpg>
+
+‎[18/12/21 7:26:35] **Pau Fitz:** ‎<attached: 00000845-PHOTO-2021-12-18-07-26-35.jpg>
+
+‎[18/12/21 7:26:35] **Pau Fitz:** ‎<attached: 00000846-PHOTO-2021-12-18-07-26-35.jpg>
+
+‎[18/12/21 7:26:35] **Pau Fitz:** ‎<attached: 00000847-PHOTO-2021-12-18-07-26-35.jpg>
+
+[18/12/21 7:26:42] **Pau Fitz:** Hola mi amor
+
+[18/12/21 7:26:48] **Pau Fitz:** Buenos días
+
+[18/12/21 7:26:50] **Alfonso Alvarez:** Buenos días!!
+
+[18/12/21 7:27:15] **Alfonso Alvarez:** Como estás amor?
+
+[18/12/21 7:27:25] **Alfonso Alvarez:** Q bonita y como cambia 🥰
+
+[18/12/21 7:27:40] **Pau Fitz:** Muy bien un poco desmañada y tú ?
+
+[18/12/21 7:27:51] **Alfonso Alvarez:** T iba a escribir xq me desperté como reloj al 5 para las 7 ☺️
+
+[18/12/21 7:28:14] **Alfonso Alvarez:** Pero dije igual ahora si durmió tranquila 😘
+
+[18/12/21 7:28:15] **Pau Fitz:** Jajaja ahora se despertó 5:40😭
+
+[18/12/21 7:28:24] **Alfonso Alvarez:** 😬
+
+[18/12/21 7:28:27] **Pau Fitz:** No jajaja
+
+[18/12/21 7:29:11] **Alfonso Alvarez:** Y luego?? Ya no duerme?
+
+[18/12/21 7:30:49] **Pau Fitz:** Pues a las 8 seguro de nuevo
+
+‎[18/12/21 7:30:54] **Alfonso Alvarez:** ‎<attached: 00000861-PHOTO-2021-12-18-07-30-54.jpg>
+
+[18/12/21 7:31:14] **Pau Fitz:** A qué hora es lo del carro ?
+
+[18/12/21 7:31:37] **Alfonso Alvarez:** 9:40
+
+[18/12/21 7:31:45] **Alfonso Alvarez:** Creo 🤓
+
+[18/12/21 7:32:00] **Alfonso Alvarez:** Me voy a bañar y tomar café 😘
+
+[18/12/21 7:33:42] **Pau Fitz:** Jajaja ok te amo
+
+‎[18/12/21 8:14:59] **Alfonso Alvarez:** ‎<attached: 00000867-PHOTO-2021-12-18-08-14-59.jpg>
+
+‎[18/12/21 8:14:59] **Alfonso Alvarez:** ‎<attached: 00000868-PHOTO-2021-12-18-08-14-59.jpg>
+
+‎[18/12/21 8:15:00] **Alfonso Alvarez:** ‎<attached: 00000869-PHOTO-2021-12-18-08-15-00.jpg>
+
+‎[18/12/21 8:17:31] **Alfonso Alvarez:** ‎<attached: 00000870-PHOTO-2021-12-18-08-17-31.jpg>
+
+[18/12/21 8:23:45] **Pau Fitz:** Mi esposito tan guapo 😍
+
+[18/12/21 8:27:25] **Pau Fitz:** Este me lo vas a tener que leer jaja
+
+[18/12/21 8:28:07] **Alfonso Alvarez:** Lo escribí ayer y la posición no ayudaba ☺️
+
+[18/12/21 8:28:23] **Alfonso Alvarez:** Mi playera 😅
+
+[18/12/21 8:28:31] **Alfonso Alvarez:** 😘😘🥰
+
+[18/12/21 8:28:54] **Pau Fitz:** Ya se jajaja teniendo tantas escogiste esa 🥴
+
+[18/12/21 8:29:34] **Pau Fitz:** Que padre está esto, cómo que se lo escribiste a alguien o algo así, pero me gusta
+
+[18/12/21 8:30:04] **Alfonso Alvarez:** Si ya se
+
+[18/12/21 8:30:32] **Alfonso Alvarez:** Creo q estaba pensando en hans cuando lo escribí
+
+[18/12/21 8:30:45] **Alfonso Alvarez:** Le debería poner fecha a las cosas 🤓
+
+[18/12/21 8:30:58] **Pau Fitz:** Me suena a lo que platicábamos ayer de que el show sigue y aquí estamos
+
+[18/12/21 8:31:08] **Pau Fitz:** Que Justo decías de Hans
+
+[18/12/21 8:31:52] **Pau Fitz:** Si imprimiste lo de la cita ?
+
+‎[18/12/21 8:35:15] **Alfonso Alvarez:** ‎<attached: 00000884-PHOTO-2021-12-18-08-35-15.jpg>
+
+[18/12/21 8:35:38] **Pau Fitz:** Ok. 😬
+
+[18/12/21 8:35:44] **Alfonso Alvarez:** 😘
+
+[18/12/21 8:36:04] **Pau Fitz:** 😘😘
+
+‎[18/12/21 9:34:56] **Alfonso Alvarez:** ‎<attached: 00000888-AUDIO-2021-12-18-09-34-55.opus>
+
+[18/12/21 9:43:09] **Pau Fitz:** A si ?!! Mtaaa ok
+
+[18/12/21 10:39:46] **Alfonso Alvarez:** Ya pague y todo, ya casi
+
+[18/12/21 10:41:59] **Pau Fitz:** Yuju Justo te iba a preguntar
+
+[18/12/21 10:42:32] **Alfonso Alvarez:** Un chou pero ya casi
+
+[18/12/21 10:42:57] **Pau Fitz:** Me imagino pero ya lo demás es rápido no ?
+
+[18/12/21 10:43:18] **Alfonso Alvarez:** Ya nada más me entregan
+
+[18/12/21 10:44:17] **Pau Fitz:** Aaaa súper 👏🏽
+
+[18/12/21 11:28:59] **Alfonso Alvarez:** ‎Location: https://maps.google.com/?q=18.892179,-99.214485
+
+[18/12/21 11:29:26] **Pau Fitz:** *Ya quedó? Ya vienes ?*
+
+[18/12/21 11:33:16] **Pau Fitz:** *Espero que todo bien, te amo con cuidado aquí te esperamos 🥰*
+
+[18/12/21 11:44:37] **Alfonso Alvarez:** *Márcame 😘*
+
+[18/12/21 13:51:57] **Pau Fitz:** http://maps.google.com/?q=20.675914,-100.337105&q=20.6759140,-100.3371040&hl=es-MX&gl=mx&entry=gps&lucs=swa,s2se
+
+[19/12/21 10:23:48] **Alfonso Alvarez:** https://drive.google.com/drive/folders/1nPrO_5XMhtDmbiM6KWGyNi5BnZhcXYNY?usp=sharing
+
+[19/12/21 18:33:32] **Pau Fitz:** *Me puedes avisar por favor*
+
+[19/12/21 18:35:01] **Alfonso Alvarez:** *Regresa a la casa y mañana haces lo q quieras pero ya es tarde y se están exponiendo*
+
+[19/12/21 18:36:24] **Pau Fitz:** *No gracias*
+
+‎[19/12/21 18:36:30] **Alfonso Alvarez:** ‎<attached: 00000905-PHOTO-2021-12-19-18-36-30.jpg>
+
+[19/12/21 18:36:48] **Alfonso Alvarez:** *Ya ahí está el dinero pero no se arriesgan*
+
+[19/12/21 18:36:57] **Alfonso Alvarez:** *Esta lloviendo*
+
+[19/12/21 18:37:30] **Pau Fitz:** *Ya no es tu problema*
+
+[19/12/21 18:37:35] **Alfonso Alvarez:** *Voy x ustedes*
+
+[19/12/21 18:37:44] **Alfonso Alvarez:** *Q t pasa??*
+
+[19/12/21 20:02:37] **Alfonso Alvarez:** *T pido en el mejor plan q trates de evitar las faltas de respeto y q tengas cuidado con lo q dices xfa es lo único q pido. Mañana podemos platicar con calma*
+
+[20/12/21 10:25:04] **Pau Fitz:** *Que chiles faltan ?*
+
+[20/12/21 10:26:07] **Alfonso Alvarez:** *Morita creo nada más
+
+[20/12/21 10:26:28] **Pau Fitz:** Ok
+
+[20/12/21 10:26:45] **Alfonso Alvarez:** Serrano hay dos bolsas
+
+‎[20/12/21 10:27:46] **Alfonso Alvarez:** ‎<attached: 00000916-PHOTO-2021-12-20-10-27-46.jpg>
+
+[20/12/21 10:28:33] **Pau Fitz:** 😍
+
+[20/12/21 10:28:35] **Pau Fitz:** Ok
+
+[20/12/21 10:28:48] **Pau Fitz:** Algo más ? Quieres que vea lo del brisket?
+
+[20/12/21 10:38:13] **Pau Fitz:** Solo hay de 5kg en adelante
+
+[20/12/21 11:01:37] **Pau Fitz:** Todo bien?
+
+[20/12/21 11:09:34] **Alfonso Alvarez:** La estaba durmiendo sorry
+
+‎[20/12/21 11:09:52] **Alfonso Alvarez:** ‎<attached: 00000923-PHOTO-2021-12-20-11-09-51.jpg>
+
+[20/12/21 11:10:23] **Alfonso Alvarez:** 5 kg es mucho? (Para 2 días)
+
+[20/12/21 11:13:27] **Pau Fitz:** Yo creo que no
+
+[20/12/21 11:13:49] **Pau Fitz:** Pensaba comprarlo y unas como brochas para estarle untando cosas
+
+[20/12/21 11:14:19] **Pau Fitz:** Se va terminar haciendo como 4 kg o menos
+
+[20/12/21 11:20:31] **Alfonso Alvarez:** Ok
+
+[20/12/21 11:20:43] **Alfonso Alvarez:** Perfecto 👌🏼
+
+[21/12/21 8:05:44] **Alfonso Alvarez:** https://youtu.be/LqI4kR6n3jY
+
+‎[21/12/21 20:57:25] **Alfonso Alvarez:** ‎<attached: 00000931-PHOTO-2021-12-21-20-57-25.jpg>
+
+‎[22/12/21 10:08:24] **Pau Fitz:** ‎<attached: 00000932-VIDEO-2021-12-22-10-08-24.mp4>
+
+‎[22/12/21 10:08:24] **Pau Fitz:** ‎<attached: 00000933-PHOTO-2021-12-22-10-08-24.jpg>
+
+‎[22/12/21 10:08:26] **Pau Fitz:** ‎<attached: 00000934-PHOTO-2021-12-22-10-08-26.jpg>
+
+‎[22/12/21 10:08:26] **Pau Fitz:** ‎<attached: 00000935-PHOTO-2021-12-22-10-08-26.jpg>
+
+‎[22/12/21 10:08:26] **Pau Fitz:** ‎<attached: 00000936-PHOTO-2021-12-22-10-08-26.jpg>
+
+‎[22/12/21 13:15:47] **Pau Fitz:** ‎<attached: 00000937-PHOTO-2021-12-22-13-15-47.jpg>
+
+[22/12/21 13:16:57] **Alfonso Alvarez:** 🥰
+
+[22/12/21 13:17:05] **Alfonso Alvarez:** Ese es un regalo también?
+
+[22/12/21 13:17:42] **Pau Fitz:** Siii
+
+[22/12/21 13:33:02] **Alfonso Alvarez:** Q bonito 😍
+
+[22/12/21 14:09:29] **Pau Fitz:** Amor comemos quesadillas con chilorio? Ya no descongelé
+
+[22/12/21 14:15:20] **Alfonso Alvarez:** Siii
+
+[22/12/21 14:20:36] **Pau Fitz:** Ok 😘
+
+‎[22/12/21 18:11:54] **Alfonso Alvarez:** ‎<attached: 00000945-PHOTO-2021-12-22-18-11-54.jpg>
+
+‎[22/12/21 18:11:55] **Alfonso Alvarez:** ‎<attached: 00000946-PHOTO-2021-12-22-18-11-54.jpg>
+
+[23/12/21 7:56:49] **Alfonso Alvarez:** https://youtu.be/H6rGgKy1jYU
+
+‎[23/12/21 8:56:33] **Alfonso Alvarez:** ‎<attached: 00000948-Héctor.vcf>
+
+[23/12/21 20:02:54] **Pau Fitz:** https://youtu.be/DobqUsxpfmw
+
+‎[24/12/21 10:18:46] **Alfonso Alvarez:** ‎<attached: 00000950-PHOTO-2021-12-24-10-18-46.jpg>
+
+‎[24/12/21 10:18:47] **Alfonso Alvarez:** ‎<attached: 00000951-PHOTO-2021-12-24-10-18-47.jpg>
+
+‎[24/12/21 10:18:47] **Alfonso Alvarez:** ‎<attached: 00000952-PHOTO-2021-12-24-10-18-47.jpg>
+
+‎[24/12/21 10:18:48] **Alfonso Alvarez:** ‎<attached: 00000953-PHOTO-2021-12-24-10-18-48.jpg>
+
+‎[24/12/21 10:18:48] **Alfonso Alvarez:** ‎<attached: 00000954-PHOTO-2021-12-24-10-18-48.jpg>
+
+‎[24/12/21 10:18:49] **Alfonso Alvarez:** ‎<attached: 00000955-PHOTO-2021-12-24-10-18-49.jpg>
+
+‎[24/12/21 10:18:50] **Alfonso Alvarez:** ‎<attached: 00000956-PHOTO-2021-12-24-10-18-49.jpg>
+
+‎[24/12/21 10:18:50] **Alfonso Alvarez:** ‎<attached: 00000957-PHOTO-2021-12-24-10-18-50.jpg>
+
+‎[24/12/21 10:18:51] **Alfonso Alvarez:** ‎<attached: 00000958-PHOTO-2021-12-24-10-18-50.jpg>
+
+‎[24/12/21 10:18:51] **Alfonso Alvarez:** ‎<attached: 00000959-PHOTO-2021-12-24-10-18-51.jpg>
+
+‎[24/12/21 10:18:52] **Alfonso Alvarez:** ‎<attached: 00000960-PHOTO-2021-12-24-10-18-51.jpg>
+
+‎[24/12/21 16:59:25] **Alfonso Alvarez:** ‎<attached: 00000961-PHOTO-2021-12-24-16-59-25.jpg>
+
+‎[24/12/21 16:59:25] **Alfonso Alvarez:** ‎<attached: 00000962-PHOTO-2021-12-24-16-59-25.jpg>
+
+[24/12/21 18:57:05] **Pau Fitz:** Mi amorcito me ayudas a prender el ventilador plis se me olvidó 😅
+
+[26/12/21 13:01:33] **Pau Fitz:** Ya voy amor
+
+[26/12/21 13:03:57] **Alfonso Alvarez:** Ok 😘
+
+‎[26/12/21 13:04:08] **Alfonso Alvarez:** ‎<attached: 00000966-PHOTO-2021-12-26-13-04-08.jpg>
+
+[28/12/21 12:18:14] **Alfonso Alvarez:** https://youtu.be/gLQf2CcTVnw
+
+[29/12/21 8:05:09] **Alfonso Alvarez:** Esta cerrado 🙆🏻‍♂️
+
+[29/12/21 8:05:15] **Alfonso Alvarez:** Voy a heb?
+
+[29/12/21 19:44:30] **Pau Fitz:** Ya se durmió si necesitas algo me avisas
+
+[29/12/21 19:51:55] **Alfonso Alvarez:** Ya le hablamos a la mujer xq no hay internet para la tele 🥸
+
+[29/12/21 19:58:33] **Pau Fitz:** Mjule jaja ok Sr. 😍
+
+[31/12/21 2:21:34] **Alfonso Alvarez:** *Q paso?? A donde vas?*
+
+[31/12/21 2:27:07] **Pau Fitz:** *Ya voy*
+
+[31/12/21 2:27:21] **Pau Fitz:** *Vine a la farmacia*
+
+[31/12/21 2:27:42] **Alfonso Alvarez:** *Xq no me dijiste??*
+
+[02/01/22 8:28:08] **Alfonso Alvarez:** 🙄https://youtu.be/orcJZdhEg_0
+
+[04/01/22 16:18:59] **Alfonso Alvarez:** *Se llama medio de transporte y se necesita*
+
+[04/01/22 16:19:17] **Alfonso Alvarez:** *No hay apego*
+
+[04/01/22 16:19:57] **Alfonso Alvarez:** *Y de verdad si regresan t voy a pedir q dejes tu cara afuera, en esta casa a partir de ahora habrá solo cordialidad*
+
+[04/01/22 16:20:11] **Alfonso Alvarez:** *Q es lo q necesito para trabajar*
+
+[04/01/22 16:20:42] **Pau Fitz:** *Lo que necesitas para trabajar son ganas fin le puedes seguir echando la culpa a lo que quieras*
+
+[04/01/22 16:21:56] **Alfonso Alvarez:** *Tu opinión básica*
+
+[04/01/22 16:22:28] **Alfonso Alvarez:** *Escribí mis libros por andar marihuano y ahora no me dan ganas 😂*
+
+[04/01/22 16:22:30] **Pau Fitz:** *Tan básica que la verdad no tengo idea con quien estoy hablando desde ayer*
+
+[04/01/22 16:22:47] **Pau Fitz:** *Ni tú sabes quien eres seguramente*
+
+[04/01/22 16:22:56] **Pau Fitz:** *No caes bien ni a ti mismo*
+
+[04/01/22 16:23:11] **Alfonso Alvarez:** *He dejado de fumar no sé cuántas veces y se perfectamente quien soy*
+
+[04/01/22 16:23:33] **Alfonso Alvarez:** *Touche 👏🏼👏🏼👏🏼👏🏼🤝*
+
+[04/01/22 16:28:19] **Pau Fitz:** *Es más riesgo quedarme aquí que subir a la bb en un camión ( qué digo al final que te importa si te caga hasta tu bebé)*
+
+[04/01/22 16:28:44] **Pau Fitz:** *Tus meses de intranquilidad e infelicidad ya se acabaron*
+
+[04/01/22 16:29:01] **Pau Fitz:** *Eres libre de nuevo*
+
+[04/01/22 16:29:10] **Pau Fitz:** *Con tu perro y tu carro*
+
+[04/01/22 16:29:18] **Alfonso Alvarez:** *????*
+
+[04/01/22 16:30:08] **Alfonso Alvarez:** *No hagas tonterías y no t vayas así*
+
+[04/01/22 16:30:45] **Pau Fitz:** *Tonterías por qué*
+
+[04/01/22 16:31:07] **Pau Fitz:** *Yo me quiero ir desde no sé cuando al igual que tú estás harto desde no sé cuando*
+
+[04/01/22 16:31:24] **Alfonso Alvarez:** *No t puedes ir con las llaves y cartera*
+
+[04/01/22 16:31:38] **Alfonso Alvarez:** *Y menos en camión x favor*
+
+[04/01/22 16:31:54] **Pau Fitz:** *Te las voy a llevar no queremos nada de ti*
+
+[04/01/22 16:32:33] **Pau Fitz:** *Y ni empieces a hablar con tu mamá por favor*
+
+[04/01/22 16:32:42] **Pau Fitz:** *Que suelto la sopa y se te acaba el chiste a ti*
+
+[04/01/22 16:34:41] **Alfonso Alvarez:** *Q dices??? La sopa de q?*
+
+[04/01/22 16:34:56] **Alfonso Alvarez:** *Mi mamá sabe q fumo*
+
+[04/01/22 16:35:05] **Pau Fitz:** *Si puedes sacar nuestras cosas o no sé cómo hacerle para no entrar*
+
+[04/01/22 16:36:37] **Pau Fitz:** *Ahí estás hablando tu mami seguramente*
+
+[04/01/22 16:36:41] **Pau Fitz:** *Que pena de verdad*
+
+[04/01/22 16:37:03] **Pau Fitz:** *No puedes pedir cordialidad si tú no la das*
+
+[04/01/22 16:37:41] **Alfonso Alvarez:** *EN Q MOMENTO NO LA DI!!!*
+
+[04/01/22 16:38:27] **Alfonso Alvarez:** *Entra y deja de vacilar*
+
+[04/01/22 16:38:29] **Pau Fitz:** *Te pones a hablar de más y a aventar cosas*
+
+[04/01/22 16:38:39] **Pau Fitz:** *Me da miedo*
+
+[04/01/22 16:38:40] **Alfonso Alvarez:** *Y tú no?*
+
+[04/01/22 16:38:41] **Pau Fitz:** *De verdad*
+
+[04/01/22 16:38:51] **Alfonso Alvarez:** *Q oso*
+
+[04/01/22 16:39:09] **Alfonso Alvarez:** *Me voy a encerrar si quieres*
+
+[04/01/22 17:42:23] **Alfonso Alvarez:** *Donde estás?*
+
+[04/01/22 18:25:44] **Pau Fitz:** *Toma 1.2 ml de unamol antes de dormir*
+
+[04/01/22 19:02:19] **Pau Fitz:** *Que le haces ?*
+
+[04/01/22 19:03:52] **Pau Fitz:** *Qué pasa? No vayas a estar queriendo intentar algo según tú*
+
+[05/01/22 2:47:29] **Pau Fitz:** *Mañana después del doctor podemos irnos a Cuernavaca ?*
+
+[05/01/22 2:47:37] **Pau Fitz:** *Por favor*
+
+[05/01/22 6:56:34] **Alfonso Alvarez:** *Ya voy para allá, ábreme xfa*
+
+[05/01/22 6:56:42] **Alfonso Alvarez:** *Si*
+
+[05/01/22 7:23:39] **Pau Fitz:** *Me podrías prestar el cargador por favor*
+
+‎[07/01/22 8:40:21] **Alfonso Alvarez:** uv2139680002220690aa.pdf • ‎2 pages ‎<attached: 00001028-uv2139680002220690aa.pdf>
+
+‎[07/01/22 8:40:43] **Alfonso Alvarez:** uv2139810002220690aa.pdf • ‎1 page ‎<attached: 00001029-uv2139810002220690aa.pdf>
+
+‎[07/01/22 8:45:18] **Alfonso Alvarez:** POLIZA_WEB_.pdf • ‎1 page ‎<attached: 00001030-POLIZA_WEB_.pdf>
+
+‎[07/01/22 8:45:18] **Alfonso Alvarez:** COMPROBANTE_PAGO_93000901185433789215.pdf • ‎1 page ‎<attached: 00001031-COMPROBANTE_PAGO_93000901185433789215.pdf>
+
+‎[07/01/22 8:50:28] **Alfonso Alvarez:** Requisitos.pdf • ‎2 pages ‎<attached: 00001032-Requisitos.pdf>
+
+‎[07/01/22 8:50:37] **Alfonso Alvarez:** Cita.pdf • ‎1 page ‎<attached: 00001033-Cita.pdf>
+
+‎[07/01/22 9:45:55] **Alfonso Alvarez:** ‎<attached: 00001034-PHOTO-2022-01-07-09-45-55.jpg>
+
+[07/01/22 10:58:54] **Alfonso Alvarez:** Ya salí
+
+‎[07/01/22 10:59:08] **Alfonso Alvarez:** ‎<attached: 00001036-PHOTO-2022-01-07-10-59-08.jpg>
+
+[07/01/22 10:58:31] **Pau Fitz:** Todo bien mi amor
+
+[07/01/22 10:58:35] **Pau Fitz:** ?
+
+[07/01/22 11:01:12] **Pau Fitz:** Ok, hago cita para verificar ?
+
+[07/01/22 11:01:31] **Alfonso Alvarez:** Si xfa
+
+[07/01/22 11:01:39] **Alfonso Alvarez:** Todo bien
+
+[07/01/22 11:01:42] **Pau Fitz:** Ok voy ahorita te hablo
+
+[07/01/22 12:00:54] **Alfonso Alvarez:** Ya entró el coche 🥸
+
+[07/01/22 12:00:59] **Alfonso Alvarez:** ☺️
+
+[07/01/22 12:02:54] **Pau Fitz:** Ayyy súper amor
+
+[07/01/22 12:02:56] **Pau Fitz:** Que bueno
+
+[07/01/22 12:03:13] **Alfonso Alvarez:** Ya casi voy
+
+[07/01/22 12:04:54] **Pau Fitz:** Ok mi amor aquí te vemos 😘
+
+‎[07/01/22 14:27:56] **Pau Fitz:** ‎<attached: 00001049-PHOTO-2022-01-07-14-27-56.jpg>
+
+[07/01/22 14:29:40] **Alfonso Alvarez:** 🥰
+
+[09/01/22 12:24:49] **Alfonso Alvarez:** 💪🏼
+
+[09/01/22 12:34:59] **Alfonso Alvarez:** 🥸
+
+[09/01/22 12:35:11] **Alfonso Alvarez:** 👶🏼
+
+[10/01/22 13:36:01] **Pau Fitz:** ‎*You blocked this contact*
+
+[10/01/22 17:25:36] **Pau Fitz:** ‎*You unblocked this contact*
+
+[10/01/22 18:13:13] **Pau Fitz:** ‎*You blocked this contact*
+
+[10/01/22 20:27:05] **Pau Fitz:** ‎*You unblocked this contact*
+
+[11/01/22 11:44:50] **Alfonso Alvarez:** *Hola Pau buen día, como está Gaia? Avísame lo que les diga el doctor porfa y cualquier cosa q necesiten avísame para depositarte, tu tienes 15,000 pesos para cubrir cualquier gasto y yo te voy depositando lo que acordemos. Voy a agarrar algunas cosas para irme y dejarte la casa, dame chance unos días pra sacar mis cosas y t aviso para que regreses a la casa*
+
+[11/01/22 12:56:07] **Pau Fitz:** *Hola, Gaia está muy bien y el dr la vio muy bien le mando otra leche y ya puede comer pollo caldos arroz y lentejas. Está bien lo de la casa, yo voy a estar aquí en Cuernavaca y gracias lo del dinero, ya no tengo los 15 se usaron en súper gas gasolina y todo tengo 5 por ahorita está bien con lo que tenemos gracias*
+
+[11/01/22 13:24:53] **Alfonso Alvarez:** *Necesito q me digas cuanto dinero se necesita para los gastos de Gaia para que te lo deposite xq si no doy pensión me meto en un problema legal, así q porfa dime cuanto necesitas semanal o si quieres usa esos 5 y te los voy reembolsando*
+
+[11/01/22 13:25:28] **Alfonso Alvarez:** *Me gustaría saber donde van a estar para que yo pueda ver a Gaia*
+
+[11/01/22 13:47:23] **Pau Fitz:** *Si claro*
+
+[11/01/22 13:47:47] **Pau Fitz:** *Por el momento estamos en casa de Anaceci en Cuernavaca aquí vamos a estar por el momento*
+
+[11/01/22 13:56:19] **Pau Fitz:** *Déjame saco un presupuesto y te puedo avisar mañana por fa*
+
+[11/01/22 14:08:43] **Alfonso Alvarez:** *Ok*
+
+[11/01/22 14:09:14] **Alfonso Alvarez:** *Ok, yo voy en estos días a Cuernavaca para ver a Gaia, te aviso*
+
+[11/01/22 14:09:38] **Pau Fitz:** *Por favor*
+
+[11/01/22 14:10:21] **Pau Fitz:*** No hables con nadie de mi fam*
+
+[11/01/22 15:00:49] **Alfonso Alvarez:** *Hablé con tu mamá en la mañana*
+
+[11/01/22 15:04:44] **Pau Fitz:** *Yo sé, te pido por favor que no trates de dar explicaciones a ajenos a la situación*
+
+[11/01/22 15:12:23] **Pau Fitz:** *Gaia está perfectamente en ningún momento ha estado o está en riesgo, si necesitas fotos o lo que sea necesario*
+
+[11/01/22 15:40:23] **Alfonso Alvarez:** *Una foto todos los días en la mañana y saber q está bien, porfa*
+
+[11/01/22 15:41:42] **Pau Fitz:** *Ok*
+
+‎[12/01/22 7:39:25] **Pau Fitz:** ‎<attached: 00001074-PHOTO-2022-01-12-07-39-25.jpg>
+
+[12/01/22 7:40:01] **Pau Fitz:** Todo bien
+
+[12/01/22 7:40:57] **Alfonso Alvarez:** Muchas gracias 🙏
+
+[12/01/22 7:42:29] **Alfonso Alvarez:** *Me gustaría pasar por ella mañana o el viernes, avísame xfa qué día prefieres*
+
+[12/01/22 7:54:28] **Pau Fitz:** *Por quien ?*
+
+[12/01/22 8:04:20] **Alfonso Alvarez:** *Por Gaia para pasar el día con ella algo como 9 a 5*
+
+[12/01/22 8:15:35] **Pau Fitz:** *Creo que por el momento podrías venir a verla aquí por favor en lo que hacemos un horario y repartimos tiempos*
+
+[12/01/22 8:16:37] **Alfonso Alvarez:** *Es mi hija y tengo derecho a verla, no bajo tus condiciones*
+
+[12/01/22 8:16:57] **Alfonso Alvarez:** *Me gustaría ponernos de acuerdo para q la pueda ver uno o dos días a la semana*
+
+[12/01/22 8:17:34] **Alfonso Alvarez:** *Sin importar donde estén, yo pasaría por ella*
+
+[12/01/22 8:18:13] **Alfonso Alvarez:** *Y te la regreso cumpliendo con su rutina y todo lo q tú indiques*
+
+[12/01/22 8:45:13] **Alfonso Alvarez:** *T lo pido x favor Pau, no me niegues el derecho a ver a mi hija*
+
+[12/01/22 8:46:36] **Alfonso Alvarez:** *Nuestros problemas son aparte y eso ya lo veremos después pero Gaia necesita a su papá y yo necesito verla*
+
+[12/01/22 8:47:20] **Alfonso Alvarez:** *Mi mamá me acompañaría a recogerla para q vaya atrás en el coche con ella, por favor 🙏*
+
+[12/01/22 10:50:12] **Alfonso Alvarez:** *Contéstame xfa no me puedes hacer esto*
+
+[12/01/22 10:50:48] **Alfonso Alvarez:** *Estoy tratando de hacer las cosas de manera correcta y cordial*
+
+[12/01/22 10:51:35] **Alfonso Alvarez:** *No hagamos problemas donde no hay t lo ruego*
+
+[12/01/22 10:52:38] **Alfonso Alvarez:** *Yo no estoy enojado, ni cuando t fuiste y tampoco ahora, solo quiero ver a mi hija como alguien normal*
+
+[12/01/22 10:55:37] **Alfonso Alvarez:** *No hagas esto más grande, no se q estes haciendo o pensando pero hablemos como adultos y no t pido nada más q ver a mi hija*
+
+[12/01/22 10:56:52] **Pau Fitz:** *Perdón está el teléfono con Gaia con música para dormir está dormida*
+
+[12/01/22 10:57:09] **Pau Fitz:** *No puedo contestar*
+
+[12/01/22 10:57:26] **Alfonso Alvarez:** *Esa no es una respuesta Pau, deja de hacer las cosas mal*
+
+[12/01/22 10:57:32] **Pau Fitz:** *No estoy haciendo nada malo*
+
+[12/01/22 10:57:34] **Alfonso Alvarez:** *Estoy en la mejor disposición*
+
+[12/01/22 10:57:43] **Alfonso Alvarez:** *No contestarme es una agresion*
+
+[12/01/22 10:58:02] **Alfonso Alvarez:** *Tengo derecho a saber cómo está mi hija y verla*
+
+[12/01/22 10:58:09] **Pau Fitz:** *Está el teléfono con Gaia sabes que le
+Pongo los ruidos para dormir por favor ahorita que se despierte te llamo*
+
+[12/01/22 10:58:43] **Alfonso Alvarez:** *No se de q me hablas xfa contesta*
+
+[12/01/22 11:11:28] **Alfonso Alvarez:** *No me cuelgues, estoy hablando contigo*
+
+[12/01/22 11:11:41] **Alfonso Alvarez:** *En buena forma y solo t pido ver a mi hija*
+
+[12/01/22 11:13:25] **Pau Fitz:** *Necesitamos estar los dos presentes para que Gaia se sienta segura*
+
+[12/01/22 11:14:25] **Alfonso Alvarez:** *Deja de decir cosas sin sentido xfa q eso de q se sienta segura? Quien lo determina? No eres apta para cuidarte a ti misma y menos para determinar esto*
+
+[12/01/22 11:26:42] **Alfonso Alvarez:** *Esta bien Pau, esta bien todo lo q imaginas y dices de mi nada más avísame cuanto te tengo q depositar a la semana para cubrir los gastos de Gaia y mándame tu estado de cuenta para saber en que se ha gastado los 15,000 pesos xq yo pague súper y todos los gastos hasta ahora*
+
+[12/01/22 11:27:01] **Alfonso Alvarez:** *No t pido nada más de momento*
+
+[12/01/22 12:45:14] **Alfonso Alvarez:** *Una pregunta, t llevaste el dinero en efectivo que tenia guardado? Es q no lo encuentro y bueno para contarlo xq son casi dos meses más de manutención para Gaia*
+
+‎[12/01/22 12:52:09] **Pau Fitz:** ‎<attached: 00001109-PHOTO-2022-01-12-12-52-09.jpg>
+
+‎[12/01/22 12:52:10] **Pau Fitz:** ‎<attached: 00001110-PHOTO-2022-01-12-12-52-10.jpg>
+
+‎[12/01/22 12:52:11] **Pau Fitz:** ‎<attached: 00001111-PHOTO-2022-01-12-12-52-11.jpg>
+
+[12/01/22 12:52:31] **Pau Fitz:** *Había 2500 es parte de los 5 que te dije que tengo*
+
+[12/01/22 12:53:51] **Alfonso Alvarez:** *No aparece el saldo*
+
+‎[12/01/22 12:54:44] **Pau Fitz:** ‎<attached: 00001114-PHOTO-2022-01-12-12-54-44.jpg>
+
+[12/01/22 12:56:04] **Alfonso Alvarez:** *Ok, nada más quedo pendiente sobre los gastos, si hay q comprar medicamentos, cuánto cuesta la leche y pañales o lo q haga falta*
+
+[12/01/22 12:57:21] **Pau Fitz:** *Tengo eso más 2500 compré ayer leche está nueva es frisolac comfort*
+
+[12/01/22 13:00:23] **Alfonso Alvarez:** *Ok entonces esta semana está cubierta y yo creo q la que sigue, pero hago la cuentas y t deposito el lunes lo que haga falta a menos que tú me digas q se necesita algo más y xfa avísame lo que necesite Gaia*
+
+[12/01/22 13:00:44] **Pau Fitz:** *Ok gracias*
+
+[12/01/22 13:05:57] **Alfonso Alvarez:** *Ya saqué todas mis cosas de la casa, se quedan un par de cajas con ropa y luego vengo por ellas, avísame si vas a regresar si no para que venga a echarle agua a las plantas una vez a la semana y arreglar las cosas antes de que acabe el contrato*
+
+[12/01/22 13:08:02] **Pau Fitz:** *No voy a regresar igualmente iría por cosas de Gaia y mías en algún punto*
+
+[12/01/22 13:10:04] **Alfonso Alvarez:** *Ok, es tu decisión*
+
+[12/01/22 13:10:42] **Alfonso Alvarez:** *Tu casa, la casa q tú elegiste se queda vacía para q la puedas ocupar cuando quieras*
+
+‎[13/01/22 6:14:05] **Pau Fitz:** ‎<attached: 00001123-PHOTO-2022-01-13-06-14-05.jpg>
+
+[13/01/22 9:41:06] **Alfonso Alvarez:** Gracias 🙏
+
+[13/01/22 9:57:39] **Pau Fitz:** *Necesitas algo más ?*
+
+[13/01/22 10:07:08] **Alfonso Alvarez:** *Me encantaría pasar un día con ella, pero no quiero iniciar otra discusión interminable, cuando tú decidas que puedo pasar por ella avísame, yo puedo esperar aunque me duela se q esto no es para siempre*
+
+[13/01/22 10:09:36] **Pau Fitz:** *Ok si gracias, la semana entrante podría ser te parece ?*
+
+‎[13/01/22 10:10:50] **Pau Fitz:** ‎<attached: 00001128-PHOTO-2022-01-13-10-10-50.jpg>
+
+[13/01/22 10:10:55] **Pau Fitz:** Por si pareciera que no quiero contestar
+
+[13/01/22 10:11:17] **Alfonso Alvarez:** Muchas gracias 🙏 si perfecto
+
+‎[14/01/22 8:38:19] **Pau Fitz:** ‎<attached: 00001131-PHOTO-2022-01-14-08-38-19.jpg>
+
+[14/01/22 9:10:11] **Alfonso Alvarez:** Muchas gracias 🙏
+
+[14/01/22 15:55:23] **Alfonso Alvarez:** *Me preocupa la pandemia y el alto potencial de contagio en el lugar donde está Gaia, la casa está vacía y creo q deberían estar en su casa
+Piénsalo xfa, este es un riesgo latente del q nos habíamos cuidado muy bien*
+
+[14/01/22 19:09:03] **Pau Fitz:** Te entiendo, pero nadie está entrando y saliendo todos trabajan aquí en casa al igual que los niños
+
+[14/01/22 19:33:51] **Alfonso Alvarez:** Tu prima ve clientes y no t puedo creer por la forma en q has manejado las cosas pero ya se investigará al igual q lo demás y la verdad siempre sale a la luz
+
+[14/01/22 20:18:44] **Pau Fitz:** Exactamente la verdad siempre sale a la luz
+
+[14/01/22 20:19:59] **Pau Fitz:** *Te pido dejes de amenazarme*
+
+[14/01/22 20:30:30] **Alfonso Alvarez:** Nunca lo he hecho
+
+[14/01/22 20:31:17] **Alfonso Alvarez:** Y t pido disculpas si así lo sentiste pero no fue mi intención ni es lo q dice aquí
